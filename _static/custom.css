@@ -1,0 +1,30 @@
+.wy-nav-content {
+    max-width: 1100px;
+}
+
+.rst-content dl dt {
+    margin-bottom: 0px;
+    font-weight: normal; 
+}
+
+.rst-content .line-block {
+    margin-bottom: 0px !important;
+}
+
+.rst-content section ul li > * {
+    margin-bottom: 0px;
+}
+
+.rst-content dl dd {
+    margin: 0 0 0px 24px;
+    line-height: 24px; /* foobar */
+}
+
+
+html.writer-html5 .rst-content dl.footnote > dd {
+    margin: 0 0 0;
+}
+
+.rst-content dl ol, .rst-content dl p, .rst-content dl table, .rst-content dl ul {
+    margin-bottom: 0px;
+}
