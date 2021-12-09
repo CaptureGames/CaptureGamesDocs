@@ -13,7 +13,7 @@ Integer ut ultrices lectus. Aenean sem metus, laoreet a hendrerit sit amet, temp
     :hidden:
     :caption: Resources
 
-    a <a>
+    Clothing <resources/clothing>
     b <b>
     c <c>
 
