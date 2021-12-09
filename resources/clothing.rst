@@ -54,5 +54,7 @@ Shoes
 Sleepwear
 -----------
 
-* 23 summer style pyjamas.
-* 52 winter style pyjamas.
+* x23 :ref:`summer style <terminology:Summer style>` pyjamas.
+* x52 winter style pyjamas.
+
+
