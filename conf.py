@@ -82,3 +82,11 @@ html_extra_path = ['_html']
 html_css_files = [
     'custom.css',
 ]
+
+
+hoverxref_auto_ref = True
+hoverxref_domains = ['py']
+hoverxref_roles = [
+    'option',
+    'doc',
+]
