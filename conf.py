@@ -83,6 +83,7 @@ html_css_files = [
     'custom.css',
 ]
 
+autosectionlabel_prefix_document = True
 
 hoverxref_auto_ref = True
 hoverxref_domains = ['py']
