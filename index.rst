@@ -17,7 +17,7 @@ Integer ut ultrices lectus. Aenean sem metus, laoreet a hendrerit sit amet, temp
     :caption: Resources
 
     Clothing <resources/clothing>
-    b <b>
+    Terminology <terminology>
     c <c>
 
 
