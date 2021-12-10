@@ -96,5 +96,6 @@ hoverxref_role_types = {
     'doc': 'modal',  # for whole docs
     'class': 'tooltip',  # for Python Sphinx Domain
     'ref': 'tooltip',  # for hoverxref_auto_ref config
+    'term': 'tooltip',
     'confval': 'tooltip',  # for custom object
 }
