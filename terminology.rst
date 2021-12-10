@@ -14,3 +14,10 @@ Short sleeved tshirt and shorts.
 
 "Winter style"
 ---------------
+
+
+.. glossary::
+
+   Winter style
+      Long sleeved tshirt (going to wrists) and bottoms (going to ankles).
+
