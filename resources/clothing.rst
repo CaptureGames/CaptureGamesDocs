@@ -54,9 +54,7 @@ Shoes
 Sleepwear
 -----------
 
-* x23 :ref:`summer style <terminology:Summer style>` pyjamas.
-* x52 :term:`winter stylea <Winter style>` pyjamas.
-* aaa :term:`Winter style` foobar baz.
-* See the :term:`sphinx:environment` definition in the glossary. This is copy/paste.
+* x23 :term:`summer style <Summer style>` pyjamas.
+* x52 :term:`winter style <Winter style>` pyjamas.
 
 
