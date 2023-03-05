@@ -14,7 +14,7 @@ Integer ut ultrices lectus. Aenean sem metus, laoreet a hendrerit sit amet, temp
 .. toctree::
     :maxdepth: -1
     :hidden:
-    :caption: 
+    :caption: Resources
 
     Clothing <resources/clothing>
     Locations <resources/locations>
