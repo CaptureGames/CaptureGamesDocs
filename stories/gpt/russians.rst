@@ -59,3 +59,39 @@ Jasmine's feet were tied with zipties, and black tape was wrapped tightly around
 The man then propped Sophie up against the far wall, next to Jasmine, before leaving the room.
 
 Sophie was left alone with her thoughts, unable to move or communicate with Jasmine. She felt a mix of fear and excitement as she sat there, adrenaline pumping through her veins. She wondered who these men were, what they wanted, and why they had targeted her and Jasmine. All she could do was hope and pray that someone would come to her rescue soon.
+
+As Sophie sat there, unable to move, she found herself fixated on her tightly bound, small bare feet. She couldn't help but compare them to Jasmine's, both of them equally vulnerable and exposed to the world. She stared at them intently, her gaze shifting back and forth between her own petite feet and Jasmine's, before returning to her own once more.
+
+The sound of the men ransacking the house could be heard in the other room, and Sophie could feel her anxiety building with every passing second. The night sky outside the window was slowly getting lighter, and she wondered what the day would bring.
+
+She couldn't help but think about how she had ended up in this situation. It all started with their love for tie-up games, which had gradually become more elaborate and intense over time. Sophie couldn't help but feel a sense of guilt wash over her as she realized that perhaps they had taken it too far.
+
+But in that moment, as she sat there, helpless and alone with her thoughts, all she could do was hope and pray that someone would come to her rescue soon. She didn't know what the future held, but she knew that she had to stay strong and hold on to her faith that everything would work out in the end.
+
+Sophie's heart raced as the two men returned, her mind racing with fear and uncertainty. They picked up Jasmine by her armpits, causing her to struggle in their grasp. One of the men responded with a punch to Jasmine's gut, causing her to go limp and cease her struggles. Sophie could feel her own heart breaking at the sight, her own helplessness adding to her anguish.
+
+The men then began to drag Jasmine out of the room, her body limp in their grasp. Sophie sat frozen, watching as they led her girlfriend down the back garden towards their driveway. She felt a pang of guilt at the thought of how she had initially been excited to see Jasmine tied up, never imagining that it would escalate to such a terrifying situation.
+
+Sophie's mind raced as she tried to figure out what to do next. She knew that she had to stay calm and think clearly if she was going to make it out of this situation alive. She wondered what the men wanted from them, and what they were planning to do next.
+
+All she could do now was wait and pray for help to arrive. She hoped that the police or someone else would come to their rescue soon. The sound of the men moving around the house and the faint light of the early morning sun slowly creeping in through the windows only added to the weight of her fear and uncertainty.
+
+Sophie's body was lifted off the ground as the men returned, causing her to feel like a ragdoll in their grasp. Even though she didn't struggle, one of the men still punched her in the gut, causing her to gasp for air. She tried to cry out, but the gag prevented any sound from escaping her lips.
+
+The men carried her down the back garden, and Sophie could see Jasmine lying in the back of a van parked on their drive. Despite her fear and the pain in her gut, Sophie couldn't help but feel relieved that she was reunited with Jasmine. She was placed next to her girlfriend in the van, the feeling of the cold metal floor beneath her body adding to her discomfort.
+
+The door was slammed shut, trapping Sophie and Jasmine inside with their captors. The men got into the front of the van and started to drive away, leaving Sophie and Jasmine helpless and alone in the back. The van bounced and rattled as it drove over uneven roads, making it difficult for Sophie to maintain her balance.
+
+Sophie could hear the muffled sounds of the men talking in the front of the van, but couldn't make out what they were saying. She felt a sense of dread wash over her, as she realized that she had no idea where they were being taken or what was going to happen to them. She closed her eyes, trying to focus on her breathing and calm her nerves as the van continued to drive further and further away from the safety of her home.
+
+Sophie felt the van come to a stop and the door open. Suddenly, a bag was placed over her head, leaving her disoriented and unable to see. She was pulled out of the van and led into a building, separated from Jasmine. Sophie's feet shuffled along the floor, feeling the rough concrete beneath them. She could hear the muffled voices of the men who had taken her, but couldn't make out what they were saying. They led her to a room and propped her up against the wall. She felt the cool, rough surface of the bricks against her back as she waited in silence.
+
+Sophie sat alone in the silence for what felt like hours. Her mind raced with thoughts of Jasmine and what might be happening to her. She wondered where they were, who these men were, and what they wanted from them.
+
+Suddenly, she heard a rhythmic grunting sound. She strained her ears to try to identify the source of the noise. It sounded like someone was exerting themselves, perhaps exercising. But then she heard a familiar sound: a whimper that sounded like Jasmine's.
+
+Sophie's heart raced with panic and fear. Was Jasmine in pain? Was she being hurt? She strained to hear more, but the sound stopped abruptly. Once again, she was left alone in the silence, with nothing but her own thoughts and fears for company.
+
+A man with a thick Russian accent and slightly broken English entered the room where Sophie was being held. He asked her about a USB device, but Sophie had no information about it. She told him this, but the man didn't believe her and started to threaten her with violence. Sophie remained silent, hoping that the man would eventually leave her alone.
+
+The man picked Sophie up and took her into another room, where she saw Jasmine. Jasmine had her clothes cut off and was still blindfolded and gagged, with her hands tied behind her. She was bent over a table, with her feet off the ground, her feet were ziptied to the legs of the table. Sophie was still clothed, but she could feel her heart pounding in her chest as she realized what might happen to her. The man ordered Sophie to kneel beside the table, and she complied, her eyes fixed on her friend, wondering what was going to happen next.
