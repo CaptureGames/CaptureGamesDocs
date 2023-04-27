@@ -10,4 +10,4 @@ Some text here for locations.
 .. toctree::
    :maxdepth: 1
 
-   Home <locations/home>
+   Russians <gpt/russians>
