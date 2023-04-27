@@ -21,14 +21,9 @@ Integer ut ultrices lectus. Aenean sem metus, laoreet a hendrerit sit amet, temp
     
     c <c>
 
+.. toctree::
+    :maxdepth: -1
+    :hidden:
+    :caption: Stories
 
-
-
-
-
-
-
-
-
-
-
+    ChatGPT generated <stories/chatgpt>
