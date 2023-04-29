@@ -11,3 +11,4 @@ Some text here for locations.
    :maxdepth: 1
 
    Russians <gpt/russians>
+   Luke test <gpt/luketest>
