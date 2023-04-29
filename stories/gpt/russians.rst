@@ -517,3 +517,21 @@ As the footsteps drew nearer, the girls' hearts raced with anticipation. They de
 Suddenly, the footsteps stopped and the sound of keys jingling could be heard. The girls heard the lock on the garage door being unlocked and then the door creaked open.
 
 Light flooded the dark garage and the girls blinked as their eyes adjusted to the sudden brightness.
+
+As footsteps approached, Sophie's heart raced with fear. She knew she and Jasmine were completely helpless, and the thought of what could happen next made her tremble. When the man arrived, she couldn't see his face behind the mask, and she could feel the sweat on her palms as she tried to wriggle free from the tight zip ties.
+
+As the man returned to where Sophie and Jasmine were tied up, Sophie's heart raced with fear of what would happen next. But then, the man removed his mask, and to Sophie's relief, she recognized him as Luke, a friend they had played tie-up games with before.
+
+Sophie wriggled happily in her hogtie, seeing Luke's face and realizing that the game was over. However, Jasmine remained blindfolded and gagged, completely unaware of what was happening around her.
+
+Luke explained to Sophie that the grenades were fake as he carefully removed the one from her pussy. Sophie moaned in relief as she felt the grenade being removed. She couldn't believe how intense the game had been, and how aroused it had made her. She looked over at Jasmine, still blindfolded and gagged, and wondered how she was feeling. Luke removed the grenade from Jasmine's pussy and she moaned in relief as it was taken out. Sophie and Jasmine both lay there, panting heavily.
+
+Luke removed the bike lock from around Sophie and Jasmine's necks, allowing them to move their heads freely. Sophie stretched her neck, feeling the soreness from being locked in place for so long. Jasmine still had her blindfold on, so she couldn't see what was happening.
+
+As Luke untied Sophie and Jasmine, he couldn't help but notice the bright red bands around their ankles and wrists from the zipties. He felt a twinge of guilt for binding them so tightly, but he knew they were experienced players in their bondage games and trusted that they had a safe word if they needed it.
+
+Sophie and Jasmine sat up, rubbing their wrists and ankles to get the blood flowing again. They both smiled at Luke, glad to see his face without the mask on. They knew that he enjoyed tying them up and having sex with them during these games, but they were always excited to see what he had planned.
+
+"Thanks for playing along, guys," Luke said with a grin. "I had a lot of fun with this one."
+
+Sophie and Jasmine nodded in agreement. They both loved the thrill of being tied up and helpless, and they trusted Luke to keep things safe and consensual. They knew that they would have plenty of time to talk about the game and what they enjoyed about it, but for now, they were content to bask in the afterglow and enjoy the freedom of movement that came with being untied.
