@@ -95,3 +95,35 @@ Sophie's heart raced with panic and fear. Was Jasmine in pain? Was she being hur
 A man with a thick Russian accent and slightly broken English entered the room where Sophie was being held. He asked her about a USB device, but Sophie had no information about it. She told him this, but the man didn't believe her and started to threaten her with violence. Sophie remained silent, hoping that the man would eventually leave her alone.
 
 The man picked Sophie up and took her into another room, where she saw Jasmine. Jasmine had her clothes cut off and was still blindfolded and gagged, with her hands tied behind her. She was bent over a table, with her feet off the ground, her feet were ziptied to the legs of the table. Sophie was still clothed, but she could feel her heart pounding in her chest as she realized what might happen to her. The man ordered Sophie to kneel beside the table, and she complied, her eyes fixed on her friend, wondering what was going to happen next.
+
+Sophie's heart raced as she watched the man approach Jasmine and unzip his pants. She felt a wave of panic wash over her as she realized that this wasn't a game anymore. The man had asked about a USB device, and Sophie had no idea what he was talking about. She knew that they had prepared a bondage scenario for the week, but this was not part of the plan. As the man penetrated Jasmine, Sophie struggled against her restraints, trying to break free, but it was no use. She was trapped and helpless, forced to watch as the man violated her friend. The minutes felt like hours, and Sophie felt like she was going to be sick. She didn't know how much longer she could take this.
+
+Sophie continued to shake her head, indicating she didn't know anything about a USB device. The man looked at her for a moment before turning his attention back to Jasmine. "I don't want to hurt daughter," he said in broken English, "tell me about USB device." 
+
+Sophie watched in horror as the man unzipped his pants and began to have sex with Jasmine. She felt sick to her stomach and couldn't believe what was happening. But then she remembered - this was all part of a bondage game that she and Jasmine had planned earlier in the week with their friends roleplaying as bad guys. 
+
+Sophie tried to push aside the feelings of disgust and focus on her role in the game. She remained quiet, watching as the man finished with Jasmine and walked towards her.
+
+Sophie, feeling a mix of disgust and arousal, watched as the man grabbed Jasmine's ponytail and thrust strongly a few more times before pulling out. Drips of white liquid leaked from Jasmine and the man. The man then turned his attention back to Sophie, asking again about the USB device.
+
+The man walked over to Sophie and repeated his question about the USB device. Sophie insisted that she didn't know anything about it. The man seemed frustrated and said, "No USB, daughter next." He then walked over to Jasmine, grabbed her ponytail, and thrust strongly a few times before pulling out. Drips of white liquid leaked from both Jasmine and the man.
+
+Sophie remained still as the man began to cut away her pyjamas. She felt a mix of excitement and nervousness. She looked over at Jasmine, who was now propped up against the wall with her feet retied. Sophie's mind raced as she tried to anticipate what would happen next.
+
+The man cut the zipties that bound Jasmine's feet to the table, and helped her up to prop her against a nearby wall. He then used another set of zipties to retie her feet. Meanwhile, the man walked over to Sophie and began to cut away her pyjamas.
+
+The man then proceeded to cut away Sophie's pyjamas, leaving her exposed and vulnerable. Sophie's hands were still tied behind her back, and she could feel the cold air on her bare skin. She was afraid of what might happen next, but at the same time, she was starting to feel aroused by the intense sensations coursing through her body. She wondered how far the man and Jasmine would take their game, and what other surprises they had in store for her.
+
+As the man cut away Sophie's pyjamas, she could feel the coolness of the air hitting her skin. She felt vulnerable and exposed, but at the same time, she was excited. She knew this was all part of the game she and Jasmine had planned. 
+
+Once her pyjamas were removed, the man picked Sophie up and placed her belly down on the table. Her hands were still tied behind her back, and her feet were cut free and retied to the table legs with zipties. She was completely immobilized and helpless, but she knew she was safe, and that the man wouldn't hurt her or Jasmine. 
+
+As the man continued to work on Sophie, Jasmine remained blindfolded and unable to see what was happening. She could only hear the sound of fabric being cut and Sophie's muffled cries. The situation was overwhelming and terrifying, but she knew it was all part of their prearranged game. She tried to calm herself down and focus on breathing steadily.
+
+As the hand continued to rub around between Sophie's legs, she couldn't help but feel a sense of confusion. It was cool and slimy, not like any sensation she had experienced before. But as the unfamiliar touch continued, Sophie found herself unable to hold back a little moan of pleasure, muffled by the gag in her mouth.
+
+Sophie felt the hand pulling away and then suddenly, she felt the man slowly inserting himself into her. At first, she tensed up in fear, but as he pushed his way forward, she couldn't help but let out a moan of pleasure through the gag. She had never experienced anything like this before, and despite the situation, she found herself enjoying the sensations. The man was rough, but he seemed to know exactly how to touch her, bringing her closer and closer to the edge.
+
+As the man continued to thrust into her, Sophie's mind raced with conflicting thoughts. She couldn't believe what was happening, and a part of her was terrified, but another part of her couldn't deny the intense pleasure she was feeling. She tried to push the conflicting feelings aside, focusing only on the physical sensations.
+
+The man continued to move in and out of Sophie, increasing his pace and force. Sophie's body responded with pleasure, her moans muffled by the gag. The man's hand moved to grip her hair, pulling her head back as he continued to thrust. The room was filled with the sounds of their bodies colliding and Sophie's moans. As the man picked up speed, Sophie's body tensed with pleasure until finally, he pulled out and stepped away from the table.
