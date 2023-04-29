@@ -127,3 +127,125 @@ Sophie felt the hand pulling away and then suddenly, she felt the man slowly ins
 As the man continued to thrust into her, Sophie's mind raced with conflicting thoughts. She couldn't believe what was happening, and a part of her was terrified, but another part of her couldn't deny the intense pleasure she was feeling. She tried to push the conflicting feelings aside, focusing only on the physical sensations.
 
 The man continued to move in and out of Sophie, increasing his pace and force. Sophie's body responded with pleasure, her moans muffled by the gag. The man's hand moved to grip her hair, pulling her head back as he continued to thrust. The room was filled with the sounds of their bodies colliding and Sophie's moans. As the man picked up speed, Sophie's body tensed with pleasure until finally, he pulled out and stepped away from the table.
+
+As the man slowly moved in and out of her, Sophie couldn't help but roleplay a little, pretending to struggle against her bonds as though she was helpless. The coolness of his skin and the sliminess of whatever substance he had used as lubrication sent shivers down her spine, but at the same time, she was enjoying the experience. 
+
+The man picked up the pace, thrusting harder and faster, causing the table to shake and creak beneath them. Sophie's body writhed beneath him, trying to escape the pleasure that was building inside her, but her bonds kept her firmly in place.
+
+Despite the pain that the restraints were causing her, Sophie continued to moan and writhe, playing her part in the game that she and Jasmine had created. She was determined to make the experience as realistic as possible, knowing that it was all part of the fun. As the man continued to move in and out of her, Sophie's body was wracked with pleasure, and she couldn't help but let out a loud moan, muffled by the gag in her mouth.
+
+The man grabbed Sophie's ponytail just like he did with Jasmine and made several hard thrusts inside her. Sophie struggled in her bonds and roleplayed a little, moaning through her gag. The man continued to move in and out of her, each thrust becoming more intense than the last. Eventually, Sophie felt the man's warm release inside her, and he pulled out with a satisfied sigh.
+
+Sophie lay there, feeling the man's warmth slowly leaving her body. She could hear him moving around the room, but she couldn't see anything because of the blindfold. She lay still, trying to catch her breath and make sense of what had just happened.
+
+After a few minutes, the man returned and untied her. Sophie felt the cool air hit her skin as he removed the blindfold and the gag. She sat up slowly, feeling a little sore but also a sense of satisfaction. As she looked around the room,
+
+The man eventually pulled out of Sophie, his warm liquid slowly leaking out of her. Sophie let out a small whimper as she felt the emptiness between her legs, but she knew that the game was not yet over. She tried to squirm a little in her restraints, playing her role as a captive, and waited for the man's next move.
+
+Sophie's heart was racing as she tried to catch her breath, still feeling the warmth of the man's liquid inside her. She was relieved when the man untied her ankles from the table, but then he picked her up and placed her against another wall, propping her up with her bare feet on the cold floor.
+
+Sophie's ankles were then retied with zip ties, ensuring she couldn't escape. The man silently left the room, leaving Sophie alone with her thoughts and the feeling of the liquid slowly leaking out of her.
+
+She tried to calm herself down and think of a plan to escape, but her mind was foggy and her body still trembling from the intense experience. She couldn't help but feel a strange mixture of fear, arousal, and confusion.
+
+Sophie closed her eyes and took deep breaths, trying to regain her composure and focus on getting out of this situation. But as she felt the liquid continue to trickle down her leg, she couldn't help but feel a sense of shame and embarrassment. She had never felt so vulnerable and exposed before.
+
+(rewritten) The man untied Sophie's ankles from the table and picked her up, placing her down on the floor with her bound ankles in front of her. He then propped her up against a different wall from Jasmine and retied her bare ankles with zip ties. After the man left, Sophie remained sitting on the floor, feeling the warm liquid still leaking from inside her.
+
+Sophie felt her heart race as the man interrogated her about the USB device again. She knew she couldn't reveal the truth, even if it meant enduring more of these games. The man's voice was stern and demanding, but she tried her best to remain composed.
+
+As the interrogation went on, Sophie's knees began to ache from kneeling for so long. Her ankles were still bound tightly with the zip ties, making it difficult to shift her weight around. She tried to focus on the questions being asked, but the discomfort was becoming too much to bear.
+
+Another man entered the room and grabbed Sophie, dragging her back into the room she was initially taken to. He forced her to kneel down and sit on her heels, keeping her hands bound behind her back. The man started interrogating her about the USB device once again, demanding to know where it was and who else knew about it. Sophie shook her head, repeating that she didn't know anything about it. The man's questions became more aggressive and threatening, making Sophie feel scared and helpless.
+
+The masked man continued to interrogate Sophie about the USB device, but she still didn't know anything about it. She felt embarrassed and uncomfortable with the liquid still slowly leaking out of her, but tried to keep her composure and remain focused on the man's questions.
+
+After what felt like hours of questioning, the man seemed to give up and left the room. Sophie was left alone, still kneeling with her bound ankles and the liquid continuing to leak out. She felt helpless and vulnerable, wondering when someone would come back and what they would do to her next.
+
+Sophie's heart sank as she heard the muffled shouting from the other room where Jasmine was being held. She felt helpless and afraid, not knowing what was happening to her friend. She tried to strain her ears to catch any words or clues, but the shouting was too muffled and garbled to make out anything.
+
+The masked man who had been interrogating her about the USB device seemed to take notice of her distraction and raised his voice, "Pay attention to me! You better start telling me what I want to know or else things will get worse for you and your friend."
+
+Sophie bit her lip, trying to focus on the man's questions, but her mind was racing with fear and worry for Jasmine. She had no idea what was happening to her friend and wished she could do something to help her.
+
+As the interrogation continued, Sophie couldn't help but glance nervously towards the door, hoping and praying that Jasmine was okay. The muffled shouting continued, and her anxiety grew with every passing moment.
+
+Sophie was dragged into the other room where she saw Jasmine sitting on the floor with her hands still tied behind her back and blindfolded. Sophie was forced to kneel beside Jasmine as the man continued to interrogate them about the whereabouts of the USB device.
+
+Sophie could feel the fear and anxiety building up inside her as she realized the severity of the situation. She had no idea where the USB device was, and she knew that she and Jasmine were in grave danger.
+
+The man continued to shout at them, demanding answers, but Sophie could only shake her head in response. She knew that she had to keep her wits about her and try to think of a way to escape.
+
+As the man grew increasingly frustrated, he started to become more violent, hitting both Sophie and Jasmine. Sophie could feel the pain shooting through her body with each blow, but she knew that she had to stay strong.
+
+She tried to communicate silently with Jasmine, but it was difficult with the blindfold and gag. They both knew that they had to come up with a plan fast if they wanted to survive.
+
+As Man B approached the table, Sophie and Jasmine exchanged fearful glances. They had no idea what was about to happen, but they knew it couldn't be good. Man B began rummaging through some equipment on the table, pulling out various items and examining them.
+
+One of the men in the room spoke up, saying "enough with this," and moved himself to the table in the middle of the room.
+
+Sophie was placed on the table again, just as she had been before. She was still bound and helpless, unable to resist as the man positioned her body. She tried to keep her mind focused, not wanting to think about what might happen next.
+
+The man leaned in close to her, his breath hot on her neck. "You still haven't told us what we need to know," he said. "But don't worry, we have other ways of making you talk."
+
+Sophie's heart began to race as she heard the man's words. She knew she had to stay strong, to hold out as long as she could. She braced herself for whatever might come next, her body tense with anticipation and fear.
+
+The man then moved to the other side of the table and did the same with Jasmine's feet, tying them to the opposite legs of the table. Both girls were now lying on their backs, their legs spread wide apart, and their pussies exposed. The man next to Sophie started to play with her nipples, while the man next to Jasmine started to rub her clit.
+
+Sophie could feel her body responding, despite the fear and confusion she felt. She didn't want to be turned on by these men, but her body was betraying her. The man next to her started to kiss her, his hands still playing with her nipples. She tried to
+
+(rewrite) Sophie was placed on the table and the man swiftly tied her feet to the legs, rendering her completely immobilized. She felt a shiver run down her spine as she realized she was at the mercy of these men once again. Her heart was racing with fear and anticipation as she tried to prepare herself for whatever was to come next.
+
+Sophie's heart began to race as she saw the man who had been inside her before make his way to the front of the table. She was still tied up and couldn't move much, but she tried to shift her body away from him. The other man made his way to the bottom of the table, and Sophie could feel her anxiety growing. She wasn't sure what they had planned for her, but she knew it couldn't be good.
+
+The man at the front of the table began to run his hands over Sophie's body, making her squirm in discomfort. She could feel his breath on her neck as he whispered something in her ear, but she couldn't make out what he was saying. The man at the bottom of the table began to pull on the ropes that bound Sophie's feet, causing her to arch her back in pain.
+
+As the hand continued to rub between her legs, Sophie felt herself becoming wet with arousal. She couldn't help but let out a soft moan of anticipation, knowing what was to come. The man leaned over her, his breath hot against her skin as he whispered, "You like that, don't you?"
+
+Sophie could only nod in response, unable to speak with the gag in her mouth. The man chuckled and positioned himself between her legs, slowly pushing inside her. Sophie gasped at the sensation.
+
+(rewrite) Sophie felt a hand sliding between her legs, and the cool, slimy sensation made her gasp softly. She knew exactly what was coming, and a mixture of fear and anticipation coursed through her body. The man's hand continued to move between her thighs, making her wet and slippery once again. She couldn't help but let out a little moan of pleasure through the gag, despite her situation.
+
+Sophie felt a familiar sensation as the man behind her grabbed her ponytail and pulled it back forcefully. She knew what was coming next. The man pushed himself inside her with a forceful thrust, eliciting a moan from Sophie's gagged mouth. He began to move in and out of her rhythmically, each thrust sending shivers of pleasure through her bound body.
+
+Sophie's mind was racing as she felt the man's hands on her hips, pulling her back against him with each thrust. She struggled against her restraints, wanting to touch herself, but she couldn't. All she could do was surrender to the man's movements and the pleasure he was giving her.
+
+The man continued to thrust into her, his movements becoming more forceful as he approached his own climax. Sophie felt his breath on her neck as he grunted with each thrust, the sound sending shivers down her spine. Finally, with a final, deep thrust, he came inside her. Sophie could feel the warmth of his release as it filled her,
+
+Sophie's voice trembled as she spoke, feeling a sense of shame and humiliation wash over her. She kept her eyes downcast, unable to look at the man's member that was now in front of her face. She could feel his hot breath on her cheeks as he leaned in closer.
+
+"Tell me more," the man demanded, his voice low and commanding.
+
+Sophie struggled to find the words, her mind a jumbled mess of fear and confusion. "I...I see...your...your...member," she stuttered out, her voice barely above a whisper.
+
+The man chuckled, a cruel sound that made Sophie's stomach turn. "That's it, my dear. Now, why don't you give it a little kiss?"
+
+Sophie's heart raced as she felt the man's hand tighten in her hair, pulling her head forward towards his member. She could feel the heat radiating off of it and the scent of his arousal filled her nostrils. She hesitated for a moment, her mind racing as she tried to come up with a way out of this situation.
+
+But the man was insistent, and with another sharp tug on her hair, he forced her to kiss his member. Sophie could feel her face flush with shame as she complied, her lips pressing hesitantly against the man's skin.
+
+The man let out a low grunt of pleasure, and Sophie felt his hand tighten in her hair even more. She knew that this was just the beginning of the horrors that awaited her, and her heart sank as she realized that there was no escape from this nightmare.
+
+Sophie hesitated for a moment, unsure of what to do, but with the man's member now on her lips, she began to suckle on it gently. She kissed and licked the tip of the glands with her tongue, feeling it twitch with pleasure. The man let out a soft moan, and Sophie could feel his hands on her head, guiding her movements.
+
+As she continued to suck and lick, she heard the man behind her moaning as well, his thrusts becoming more forceful. She tried to focus on the task at hand, but the feeling of being filled from behind was overwhelming, and she couldn't help but moan around the man's member in her mouth.
+
+The man in front of her groaned and pushed deeper into her mouth, and Sophie felt his hand on the back of her head, urging her to take more of him. She tried to relax her throat and take him in deeper, gagging slightly as he hit the back of her throat.
+
+---
+
+(rewrite) As Sophie continued to pleasure the man in front of her, the man behind her suddenly pulled out and walked over to Jasmine. He removed Jasmine's blindfold, revealing a scared and teary-eyed expression. Without hesitation, he walked back over to Sophie and reinserted himself into her, causing her to gasp in surprise and pleasure. He resumed thrusting into her, grabbing onto her ponytail once again as he took control.
+
+Sophie couldn't turn her head, but she could feel Jasmine's eyes on her. She felt a sense of shame and embarrassment as she realized that Jasmine was watching her with a man in her mouth and another man between her legs.
+
+The man behind her let out a loud groan and pulled out. He walked over to Jasmine and removed her blindfold. Jasmine looked around the room, clearly confused and disoriented. The man then walked back to Sophie and reinserted himself, continuing where he left off.
+
+Sophie tried to focus on the task at hand, taking the man's member back into her mouth and resuming her ministrations.
+
+Sophie tried to say the words, but they were muffled and barely audible. The man in front of her groaned and pulled back slightly, allowing her to speak more clearly. "I'm a little girl," she whispered, feeling a sense of humiliation wash over her.
+
+The man behind her picked up the pace, thrusting harder and faster. Sophie could feel herself getting closer to the edge, despite her attempts to resist. She closed her eyes, trying to block out the sensations, but it was no use.
+
+Sophie continued to try to say the words as best she could, but they were still muffled due to the man's member in her mouth. The man in front of her seemed to be getting more excited as he thrust himself deeper into her mouth, making it even harder for her to speak. Finally, he pulled out and looked down at her with a satisfied grin on his face.
+
+The man behind her let out a loud groan and pulled out, going over to Jasmine and removing her blindfold. Sophie's heart sank as she realized what was about to happen. She watched in horror as the man positioned himself between Jasmine's legs and pushed himself inside her. Sophie felt a wave of guilt and shame wash over her at the thought of being a part of what was happening to her friend.
